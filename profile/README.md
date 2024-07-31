@@ -21,4 +21,4 @@ We value team accomplishments and seek opportunities to join with our colleagues
 - Address: Jl. Pengadegan Timur Raya No.1 4, RT.7/RW.1, Pengadegan, Kec. Pancoran, Kota Jakarta Selatan, Daerah Khusus Ibukota Jakarta 12770
 - Tel: +62 21 8280667
 - Website: [Rembon Karya Digital](https://rembon.co.id/)
-- Email: sales@rembon.com
+- Email: info@rembon.com
